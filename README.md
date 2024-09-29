@@ -1,3 +1,3 @@
 # myfirstproject
 
-studying is slay
+studying is slay, so I am slay
